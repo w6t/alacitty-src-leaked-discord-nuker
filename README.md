@@ -1,1 +1,1 @@
-# alacitty-src-leaked-discord-nuker
+# alacitty-src-leaked
